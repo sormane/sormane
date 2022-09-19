@@ -1,4 +1,3 @@
-### Hi there 👋
 
 ## Olá, me chamo Sormane do Nascimento Guimarães ! 
 ### Bem vindo ao meu perfil GitHub 👋
